@@ -4,13 +4,12 @@ Coming from love with [Loba](https://www.instagram.com/lobanjica853/) :gift_hear
 
 Its *No NUT November*
 
-<p align="center"><img src="Images/boiitenor.gif
-" width=300></p>
+<p align="center"><img src="Images/boiitenor.gif" width=300></p>
 
 <h3> Don't <b>TILT</b> neither should your Dick </h3>  
 <h4> "Stay Hard" - David Goggins </h4>
 
-<p align="center"><img src="Images/stayhardtenor.gif width=500"></p>
+<p align="center"><img src="Images/stayhardtenor.gif" width=500></p>
 
 Don't tilt be Happy :hugs:
 
