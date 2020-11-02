@@ -12,7 +12,7 @@ I always had the habit of tilting after losing matches >> This image below is [M
 
 <br>
 
-<p align="center"><img src="Images/120042762_169432771436218_5325385350721773661_n.jpg"></p>
+<p align="center"><img src="Images/120042762_169432771436218_5325385350721773661_n.jpg" width=300></p>
 
 <br>
 
