@@ -28,11 +28,11 @@ But later I realised that getting tilted is only bad for me
 - Practice makes Progress and eventually Perfect Don't Burnout   :robot:
 <p align="center"><img src="Images/Screenshot_2020-11-02-01-14-28-88.png" height=400></p>
 - Losing a Battle Does'nt mean you lost the WAR
-    <p align="center"><img src="Images/maxresdefault.jpg"></p>
+    <p align="center"><img src="Images/maxresdefault.jpg" width=400></p>
 - Enjoy your Victory , People say kiss :couplekiss: your <b>GIRL</b> like Poizon kisses his Trophy hehe
-  <p align="center"><img src="Images/ezgif.com-gif-maker.jpg"></p>    
+  <p align="center"><img src="Images/ezgif.com-gif-maker.jpg" width=400></p>    
 - Be Happy :)
-   <p align="center"><img src="https://tenor.com/view/happyfeet-penguin-happydance-gif-5594398.gif" width=300></p>
+   <p align="center"><img src="https://tenor.com/view/happyfeet-penguin-happydance-gif-5594398.gif" width=400></p>
 - The harder the Battle :triumph: the Sweeter :birthday: the Victory
 - And Always remember the <b>Comeback</b> is greater than the setback
 
