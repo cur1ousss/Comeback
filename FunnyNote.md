@@ -10,7 +10,7 @@ Its *No NUT November*
 <h3> Don't <b>TILT</b> neither should your Dick </h3>  
 <h4> "Stay Hard" - David Goggins </h4>
 
-<p align="center"><img src="Images/stayhardtenor.gif"></p>
+<p align="center"><img src="Images/stayhardtenor.gif width=500"></p>
 
 Don't tilt be Happy :hugs:
 
